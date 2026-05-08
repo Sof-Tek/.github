@@ -1,4 +1,4 @@
 # Sof-Tek
-### *Your Quality, with Quantity*
+### *Your Quality, in Quantity*
 
 # www.sof-tek.com
